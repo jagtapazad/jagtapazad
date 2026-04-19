@@ -57,7 +57,7 @@
 
 ## Outside of work
 
-🇮🇳 | 🇺🇸 🇳🇵 🇧🇹 🇪🇬 🇦🇪 🇻🇳 🇹🇭
+🇮🇳 <-> 🇺🇸  |  🇳🇵 🇧🇹 🇪🇬 🇦🇪 🇻🇳 🇹🇭
 
 🎾 Tennis  ·  ⚽ Soccer  ·  ✈️ Travelling
 
