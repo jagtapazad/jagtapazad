@@ -61,4 +61,4 @@
 
 🎾 Tennis  ·  ⚽ Soccer  ·  ✈️ Travelling
 
-CFA Level I · IGVC 2nd place (IIT Kharagpur Autonomous Ground Vehicle team) · $50K Berkeley scholarship · CPO Org Award @ Meesho (2x Best Pod) · Top 0.5% JEE from 8 months of self-study · AirBnB Owner in rural India
+CFA Level I · IGVC 2nd place (IIT Kharagpur Autonomous Ground Vehicle team) · $50K Berkeley scholarship · CPO Org Award @ Meesho (2x Best Pod) · Ranked Top 0.5% JEE with just 11 months of self-prep · AirBnB Owner in rural India
